@@ -10,7 +10,7 @@
 - 📸 This is our Instagram : https://www.instagram.com/heartkeyproductions/
 
   ![freakhunter_banner](https://github.com/user-attachments/assets/423c540d-b94a-4816-81d8-310748df7991)
-	--------------------------------------------Our Latest game:  https://heartkey.itch.io/freakhunter --------------------------------------------------
+	----------------------------------------- Our Latest game:  https://heartkey.itch.io/freakhunter ----------------------------------------------
 
 
 <!---
